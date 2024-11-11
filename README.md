@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JLBUOC or Txus for friends
+- 👀 I’m interested in passing my subjects
+- 🌱 I’m currently learning computer enginering
+- 📫 jlopezbaez@uoc.edu
+- ⚡ Fun fact: Seré el más titulao' del simenterio
+- 
